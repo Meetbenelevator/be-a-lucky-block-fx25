@@ -1,4 +1,4 @@
-#  
+#  be a lucky block ultimate Scripts offers the most advanced be a lucky block Script, with one-hit kill and aimbot. Perfect for dominating any match.
 
 
 
